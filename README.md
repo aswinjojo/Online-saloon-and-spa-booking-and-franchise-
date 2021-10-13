@@ -1,1 +1,1 @@
-# Online-saloon-and-spa-booking-and-franchise-
+# Online-saloon-and-spa-booking-with-franchising
